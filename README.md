@@ -32,4 +32,4 @@ Information may be processed, stored, and used outside of the country in which y
 #### Technical Support
 Please contact me if you have any questions.
 
-Email: randicdaye1988@hotmail.com
+Email: John1990@hotmail.com
